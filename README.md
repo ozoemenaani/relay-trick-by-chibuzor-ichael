@@ -1,2 +1,2 @@
-# relay-trick-by-chibuzor-ichael
-Relay trick by Chibuzor Ichael
+# relay-trick-by-michael-eze
+Relay trick by Michael Eze
